@@ -1,4 +1,4 @@
-# 
+# VIP deribit trading bot complementos for Mac OS | Profesional deribit trading bot complementos for PC Windows. Featuring API de intercambio centralizado and estrategia de reversión a la media — optimized for maximum performance.
 
 
 
